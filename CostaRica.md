@@ -1,0 +1,1 @@
+I love Costa Rica! This is my favorite country with so many great beaches
